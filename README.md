@@ -13,6 +13,8 @@
 
 # يمكنكم الآن متابعتنا على الفيسبوك
 
+# [༺ بوت لونا ༻](https://www.facebook.com/profile.php?id=61571715574762)
+
 # [༺ حساب زينو ༻](https://www.facebook.com/ZINO.EL.186590)
 # [༺ حساب محمد ༻](https://www.facebook.com/horizon.404.dz.official)
 
